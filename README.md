@@ -10,3 +10,5 @@ i dont even give a shit any more.
 this is the shit
 and i also knew
 >>>>>>> Stashed changes
+
+what do i have to do to say something to you
